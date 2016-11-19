@@ -7,12 +7,14 @@ Com seu baseado aceso entre os lábios ele apanhou uma taça de vinho cheia pela
 
 -- Oi, disse ele em tom de desinteresse.
 Asperou, escutou por um momento e recomeçou a falar:
-- Sim... Sim, eu estou indo encontra-lo mas não acho que este seja o momento para... Desculpe, mas não acho uma boa idéia... Escuta aqui! Eu estou indo encontrar um amigo e não quero ter que falar de negócios com ele! Se você tem algum problema com isso, sinta-se à vontade para vir conversar comigo amanhã demanhã dentro de um horário normal de trabalho!
+-- Sim... Sim, eu estou indo encontra-lo mas não acho que este seja o momento para... Desculpe, mas não acho uma boa idéia... Escuta aqui! Eu estou indo encontrar um amigo e não quero ter que falar de negócios com ele! Se você tem algum problema com isso, sinta-se à vontade para vir conversar comigo amanhã demanhã dentro de um horário normal de trabalho!
 
 Leandro então desligou o telefone irritado e olhou mais uma vez para o relógio: 19:15. "Merda! E ainda vou ter que voltar pra pagar!". Discou um número e esperou para ouvir a voz familiar do outro lado da linha:
 
 -- Dae velho! Bora fazer aquele rango então? - Perguntou Roberto animado enquanto relaxava confortavelmente em seu sofá cinza.
+
 -- Pô cara, acho que vou chegar meio atrasado. Levei muito tempo aqui fora, agora vou ter que ir até o caixa pra pagar estacionamento.
+
 -- Ah, então tais perto já! Cara, nem te estressa! Leva o tempo que precisar aí porque a cerveja ainda tá gelando - disse Roberto com seu sorrizinho.
 
 Leandro desligou aliviado, ligou seu carro e partiu em rumo à casa do amigo.
