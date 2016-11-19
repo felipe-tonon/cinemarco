@@ -1,6 +1,6 @@
 # cinemarco
 
-[historia em prosa!](historiaEmProsa.md)
+[=historia em prosa=](historiaEmProsa.md)
 
 descricao de cena.. duas pessoas sentam se numa mesa para conversar, sao amigos mas nao se veem ha algum tempo
 isso demonstra certa falta de conhecimento um do outro pelas ideias que ja nao sao as mesmas que conheciam um do outro
