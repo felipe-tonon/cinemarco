@@ -19,4 +19,4 @@ Leandro então desligou o telefone irritado e olhou mais uma vez para o relógio
 
 -- Ah, então tais perto já! Cara, nem te estressa! Leva o tempo que precisar aí porque a cerveja ainda tá gelando - disse Roberto com seu sorrizinho.
 
-Leandro desligou aliviado, ligou seu carro e partiu em rumo à casa do amigo.
+Leandro desligou aliviado, ligou seu carro e partiu rumo à casa do amigo.
