@@ -3,7 +3,7 @@ Roberto ainda em pé acendia um baseado em meio a sua cozinha. Na sala, Miles Da
 Com seu baseado aceso entre os lábios ele apanhou uma taça de vinho cheia pela metade de perto da pia e se sentou no sofá à medida que balançava de leve a cabeça ao ritmo da música. Ele tomou um gole de vinho e conferiu a hora no seu relógio de pulso [19:14]. "Tá de boa, tem tempo ainda", pensou
 [o cara é hippiezão mas tem certas posses]
 
-"Merda, tô quase atrazado", pensou Leandro enquanto carregava apressado uma sacola, antes de olhar preocupado para o seu relógio que marcava 19:14. Comparou a hora com um bilhete de estacionamento [19:00] e sentiu uma boa esperança de poder sair sem ter que se preocupar em pagar. Mal botou as compras no carro e o som de seu telefone celular tocando o lembrou de mais um problema de que teria de ser resolvido este noite.
+"Merda, tô quase atrazado", pensou Leandro enquanto carregava apressado uma sacola, antes de olhar preocupado para o seu relógio que marcava 19:14. Comparou a hora com um bilhete de estacionamento [19:00] e sentiu uma boa esperança de poder sair sem ter que se preocupar em pagar. Mal botou as compras no carro e o som de seu telefone celular tocando o lembrou de mais um problema que teria de ser resolvido este noite.
 
 - Oi, disse ele em tom de desinteresse.
 Asperou, escutou por um momento e recomeçou a falar:
